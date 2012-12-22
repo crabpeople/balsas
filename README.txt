@@ -1,1 +1,1 @@
-Sis failas yra sugadintas
+Negadink failo :)
